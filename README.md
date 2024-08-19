@@ -4,4 +4,4 @@
 ➼ just do it
 ➼ likes berserk
 ➼ i cooked on this niggas class😭🙏
-(im black idk)
+(im black btw)
